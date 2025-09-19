@@ -45,6 +45,6 @@ N'hésitez pas à me contacter si vous avez des questions ou si vous souhaitez e
 
 ### Auteur
 
-**Dorian DIKOUME**
-**dikoume383@gmail.com**
-**+237694430776**
+- **Dorian DIKOUME**
+- **dikoume383@gmail.com**
+- **+237694430776**
